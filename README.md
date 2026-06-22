@@ -32,7 +32,7 @@ B.E. in Artificial Intelligence & Data Science, Nitte Meenakshi Institute of Tec
 
 **Let's connect**
 
-📫 angadib28@gmail.com · 🔗 [LinkedIn](www.linkedin.com/in/basavaraj-angadi0307)
+📫 angadib28@gmail.com · 🔗 [LinkedIn](https://www.linkedin.com/in/basavaraj-angadi0307)
 
 
 
